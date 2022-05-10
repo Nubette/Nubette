@@ -4,6 +4,9 @@
 - 💞️ I’m looking to collaborate on ... how to withdraw from my account
 
 - 📫 How to reach me ...
+- hortonmichelle98@gmail.com
+
+I'm looking for ways to stop scam artist from getting over on others
 
 <!---
 Nubette/Nubette is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
